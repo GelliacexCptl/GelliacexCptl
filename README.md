@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @GelliacexCptl
 - 👀 I’m interested in Web3
-- 🌱 I’m currently learning to become pro airdrop hunter
+- 🌱 I’m currently learning to become a pro airdrop hunter/ crypto enthusiast 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me gellitugas@gmail.com
 
